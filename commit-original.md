@@ -1,1 +1,1 @@
-I Love Lore
+I Love Aldredge
