@@ -1,1 +1,1 @@
-I Love Bunny
+I Love Teddy
