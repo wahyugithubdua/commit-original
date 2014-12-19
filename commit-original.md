@@ -1,1 +1,1 @@
-I Love Jamika
+I Love Kandis
