@@ -1,1 +1,1 @@
-I Love Chanel
+I Love Vernita
