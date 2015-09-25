@@ -1,1 +1,1 @@
-I Love Quincy
+I Love Adolf
