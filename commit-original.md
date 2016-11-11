@@ -1,1 +1,1 @@
-I Love Valrie
+I Love Quincy
