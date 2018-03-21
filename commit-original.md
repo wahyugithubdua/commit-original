@@ -1,1 +1,1 @@
-I Love Gay
+I Love Shelton
