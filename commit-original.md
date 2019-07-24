@@ -1,1 +1,1 @@
-I Love Kamala
+I Love Stanton
