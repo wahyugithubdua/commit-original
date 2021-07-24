@@ -1,1 +1,1 @@
-I Love Latosha
+I Love Bauske
