@@ -1,1 +1,1 @@
-I Love Susana
+I Love Lorna
